@@ -26,11 +26,11 @@ Reliable charging port repair with micro-soldering support and deep cleaning for
 👉 https://atomrepairs.in/iphone-charging-port-replacement-bangalore/
 
 Explore all services:  
-👉 **(https://atomrepairs.in/apple-service-center-bengaluru)/**
+👉 https://atomrepairs.in/apple-service-center-bengaluru
 
 ---
 
-## 📞 Contact AtomRepairs 07090075750
+## 📞 Contact AtomRepairs tel:07090075750
 
 **AtomRepairs – Bengaluru**  
 🌐 Website: https://atomrepairs.in/
