@@ -30,7 +30,7 @@ Explore all services:
 
 ---
 
-## 📞 Contact AtomRepairs tel:07090075750
+## 📞 Contact Atom Repairs 07090075750
 
 **AtomRepairs – Bengaluru**  
 🌐 Website: https://atomrepairs.in/
